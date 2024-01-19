@@ -1,3 +1,2 @@
 # References
-
-* octocat 1 😈
+My references are available upon request :3
